@@ -1,4 +1,4 @@
-<h1>Baywin Casino'ya Giriş - Tüm Bilgiler ve Adımlar</h1> <p>Baywin<h1>Baywin Casino'ya Giriş - Tüm Bilgiler ve Adımlar</p>
+<h1>Baywin Casino'ya Giriş - Tüm Bilgiler ve Adımlar</h1> 
 <p>Baywin Casino, çevrimiçi kumar dünyasında öne çıkan ve kullanıcılarına eşsiz bir deneyim sunan bir platformdur. </p>
 <p><strong><a href="https://ddssafety.net">Baywin Giris</a></strong> süreci, bu eğlenceli dünyaya adım atmanın ilk aşamasıdır. </p>
 <p>Platform, kullanıcılara güvenli ve hızlı giriş imkanı sunarak, oyunlara kolayca erişmelerini sağlar.</p>
